@@ -1,4 +1,4 @@
--  Heeeeeey, I’m @3Rr0r418 !
+-  Heeeeeey, I’m 3R!
 -  I am interested in Character design, Paleo art, Cyberpunk & Robotics
 -  I’m currently learning Python, 2D Animation, Character illustration, Web scripting & 3D modelling
 -  Best place to reach me is through Discord as I do not check here often! @3Rr0r_418#0418
